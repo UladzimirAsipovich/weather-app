@@ -1,4 +1,4 @@
-# Hi! My name is... ~~Slim Sha...~~ Vladimir Osipovich!
+# Hi! My name is Vladimir Osipovich!
 #
 #
 > I’m constantly studying and engaged in self-development. I have two higher technical educations. I can make reasonable and balanced decisions in a rapidly changing environment. I try to think logically, I know how to defend my opinion and at the same time perceive constructive criticism. I can find a common language and get along with a group of people. Diligent, we teach, I can listen to hear what they say. Self-organized, able to work without constant supervision by management. Executive, disciplined, efficient. I have no bad habits (smoking, excessive alcohol).
